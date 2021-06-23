@@ -1,3 +1,3 @@
 # Notes
 
-This repository will be used for all things notes and add some other stuff here!
+This aksjhdakjshdakhd will be asldjkalsdjkad for all asdlajksdkljd notes and add some other stuff here!
